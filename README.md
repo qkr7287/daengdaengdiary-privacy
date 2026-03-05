@@ -1,0 +1,2 @@
+# daengdaengdiary-privacy
+daengdaengdiary-privacy
